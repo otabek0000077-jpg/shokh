@@ -1,3 +1,2 @@
 # shokh
-nimadur qwertyuio
-
+do'slarrrrr uzbga boryabmannnnnnd
